@@ -6,3 +6,7 @@ And i'm a student in BSc Software Engineering. Mostly of my life was dedicated t
 
 ## Where am I
 I live in the Netherlands, but currently at home cause you know COVID....
+
+## Socials
+📸 [Instagram](https://instagram.com/gidionus) 
+💼 [LinkedIn](https://www.linkedin.com/in/gwjvdlaar/)
