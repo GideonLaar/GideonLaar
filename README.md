@@ -11,4 +11,4 @@ Money is an issue... I would love to do all kinds of expensive things like trave
 - 💚 Tech, Gaming, Wearables, Food, Traveling
 - 🫰 Have you figured out what my username is about? Love to create a mystery.
 
-Hit me up on [LinkedIn](https://www.linkedin.com/in/gwjvdlaar/), [HuggingFace🤗](https://huggingface.co/C00100011), or on [Threads](https://www.threads.net/@c00100011_gideon) (not a Twitter fan).
+Hit me up on [LinkedIn](https://www.linkedin.com/in/gwjvdlaar/), [HuggingFace🤗](https://huggingface.co/C00100011), [My blog](https://c00100011.dev/) or on [Threads](https://www.threads.net/@c00100011_gideon) (not a Twitter fan).
